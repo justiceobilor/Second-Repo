@@ -119,6 +119,10 @@ Founder and Leader, [Young African Leaders for Change](http://https://www.facebo
 
 Lead Vocalist in Church Choir group (2007-Present) 
 
+Second Assignment :- http://justiceobilor.github.io/fourth-repo/
+                     http://justiceobilor.github.io/fourth-repo/MOCC_presentation.html
+
+
 
 
 
